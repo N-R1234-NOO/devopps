@@ -1,12 +1,5 @@
-# devopps
-for practice purpase
-122222223gdfdhgnhg
-
-
-
-
-everyone is great
-practice
-
-asssssssssssssdfffffffffffassssssssssssffffffffaaaaf
-1223334444555556666666777777778888888888888999999999999
+welcome to the bangalore 
+hungry dogs are never loyal
+everyone got job
+except me
+hfalsjklfjasdlkjflk;jakls;j
